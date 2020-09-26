@@ -1,6 +1,6 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+nie wiem bede pisal byle co zeby bylo xd
 
 
 
