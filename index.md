@@ -1,8 +1,7 @@
 # minima
 
-ja*******
+minima
 
 
 
 
-ffff
